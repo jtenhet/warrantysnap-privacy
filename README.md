@@ -1,0 +1,1 @@
+# warrantysnap-privacy
